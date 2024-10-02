@@ -4,3 +4,6 @@ Olá meu nome é João Lucas Teixeira e estou aprendo a usar o github
  Meu jogador favorito é o arrascaeta 
  E meu sonho é ir para o RJ curtir uma praia e ir em um jogo do Flamego
 🔴⚫⚽
+
+![](https://media1.tenor.com/m/pS1OKx2uhoQAAAAd/conmebol-libertadores.gif)
+
