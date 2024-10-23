@@ -9,7 +9,8 @@
 .E meu sonho é ir para o RJ curtir uma praia e ir em um jogo do Flamego
 
 .Entre em contato comigo joao.teixeira04@escola.pr.gov.br
-🔴⚫⚽
+
+.🔴⚫⚽
 
 
 <h1 align="center">
